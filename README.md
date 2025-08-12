@@ -1,4 +1,4 @@
-# refere
+
 # ¡Hola soy Fere!
 Una persona **curiosa, creativa y observadora**, siempre en busca de nuevas formas de ver el mundo. Me gusta encontrar inspiración en lo cotidiano y en las historias que hay detrás de cada lugar y persona.  Disfruto rodearme de personas con las que pueda compartir conversaciones profundas y momentos genuinos.  
 
