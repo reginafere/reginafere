@@ -1,5 +1,6 @@
 
 # ¡Hola soy Fere!
+Me llamo Regina **Fere**grino  pero me conocen como **Fere** por mi apellido
 Una persona **curiosa, creativa y observadora**, siempre en busca de nuevas formas de ver el mundo. Me gusta encontrar inspiración en lo cotidiano y en las historias que hay detrás de cada lugar y persona.  Disfruto rodearme de personas con las que pueda compartir conversaciones profundas y momentos genuinos.  
 
 Encuéntrame en [instagram](https://www.instagram.com/reginaferegrinoag/)
@@ -8,7 +9,7 @@ Estudiante de **Comunicación Visual** en **Centro**, apasionada por el diseño 
 
 
 ## 
- Para conocer de mi trabajo visita mi [ portafolio ](https://readymag.website/u1607494166/5521091/) . 
+ Para conocer mi trabajo visita mi [ portafolio ](https://readymag.website/u1607494166/5521091/) . 
 ## 
 
 ## Cosas que disfruto
